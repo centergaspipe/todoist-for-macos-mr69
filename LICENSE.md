@@ -1,4 +1,4 @@
-
+Todoist for macOS advanced Automation - reminders and widgets offers the most advanced Todoist for macOS automation, with reminders and widgets. Ideal for professionals.
 
 
 
